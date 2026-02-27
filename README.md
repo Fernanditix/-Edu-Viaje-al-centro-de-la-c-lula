@@ -1,1 +1,1 @@
-# -Edu-Viaje-al-centro-de-la-c-lula
+# -Edu-Viaje-al-centro-de-la-célula
